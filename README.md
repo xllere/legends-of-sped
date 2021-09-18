@@ -1,1 +1,0 @@
-# legends-of-sped
